@@ -1,0 +1,1 @@
+# lista_de_atividades_psc_ex8.2
